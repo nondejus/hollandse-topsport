@@ -3,7 +3,7 @@ hollandse-topsport
 
 
 2002 - 2020:
-alcohol & harddrugs verslaafden 
+alcohol - pillen - harddrugs verslaafden 
 
 - maken 
 - onderhouden 
